@@ -1,0 +1,1 @@
+# Swisstronik-PRIVATE-NFT
